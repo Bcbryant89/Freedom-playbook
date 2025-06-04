@@ -19,7 +19,7 @@ Whether you're starting from scratch or ready to scale, this playbook gives you 
 
 ## 📲 Free Resources
 
-Text **PLAYBOOK** to **901-857-8040** or DM **"TOOLS"** for free access to:
+Text **PLAYBOOK** to **901-355-8670**  for free access to:
 - Business startup guides  
 - Investment checklists  
 - Bonus trucking and real estate tips  
