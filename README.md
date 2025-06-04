@@ -11,7 +11,7 @@ Whether you're starting from scratch or ready to scale, this playbook gives you 
 
 ## 🔗 Access the Playbook
 
-👉 [Launch the Freedom Playbook Site](https://bcbryant89.github.io/freedom-playbook/)
+👉 [Launch the Freedom Playbook Site]https://bcbryant89.github.io/freedom-playbook/
 
 - Download the full Playbook – **$14.99**
 - Book 1-on-1 Strategy Sessions (Zoom or In-Person)
